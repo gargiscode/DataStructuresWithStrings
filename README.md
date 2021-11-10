@@ -12,7 +12,7 @@ Video Link for Q #5
 
 Video Link for Q #6
 
-Video Link for Q #7
+Video Link for Q #7 https://youtu.be/TRdun4SGM8Y
 
 Video Link for Q #8
 
