@@ -14,7 +14,7 @@ Video Link for Q #6
 
 Video Link for Q #7 https://youtu.be/TRdun4SGM8Y
 
-Video Link for Q #8
+Video Link for Q #8 https://youtu.be/wBk6Bd1F1rc
 
 Video Link for Q #9
 
